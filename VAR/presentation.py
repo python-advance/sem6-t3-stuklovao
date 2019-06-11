@@ -1,1 +1,1 @@
-[Ссылка](https://slides.com/stuklovao/deck)
+[Ссылка](https://slides.com/stuklovao/deck#/1)
